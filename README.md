@@ -16,7 +16,7 @@ I have also used python to practice the basics of data manipulation like reading
 
 ### Passion outside Tech and Studies
 * **_Cornhole_**: I got introduced to the game of corn hole by Campus Ministry (CM) this summer when I started hanging out with them and I am grateful for the wonderful time and experience that I had with them over the summer.
-* **_Pickle Ball_**: Two random white American girls introduced me to Pickle Ball when I went over to the tennis court at Allendale to practice tennis for the first time with friend and since then, I have looking for Americans to smoke them at Pickle Ball.
+* **_Pickle Ball_**: Two random white American girls introduced me to Pickle Ball when I went over to the tennis court at Allendale to practice tennis for the first time with friend and since then, I have been looking for Americans to smoke at Pickle Ball.
 * **_Sky Diving_**: Sky Diving is something that I am looking forward to trying to help me knock my fear of heights out of me.
 
 If you find any of my passionate hobbies interesting and want to try it with me, just let me know.
